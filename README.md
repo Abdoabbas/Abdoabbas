@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Abdullah Abbas currently I'm an certified Google IT Support Specialist & Social Media Specialist wiht more than 8 months of experiance
+- 👀 I’m interested in Data Science & Mobile App Development
+- 🌱 I’m currently learning Ux designing and Data Science
+- 💞️ I’m looking to collaborate on all of the mentioned areas
+- tel: +249919586473 
+- email" abdallah.abbas.jr@gmail.com
